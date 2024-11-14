@@ -1,1 +1,1 @@
-![cover-get_next_line](https://github.com/user-attachments/assets/b514b2e0-d19d-4c6c-8446-1be9365c62e2)
+![cover-get_next_line-bonus](https://github.com/user-attachments/assets/61964a4a-46e6-44b5-a154-39a3122edbdb)
